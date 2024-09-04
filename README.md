@@ -1,4 +1,4 @@
-# 865vintage.github.io
+# 865 Vintage
 VINTAGE4CASH
 
 ### !WORK IN PROGRESS!
